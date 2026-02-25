@@ -1,4 +1,4 @@
-## Hi there 
+## Hi there, 
 My name Hayden Beyer and I am student class of 2026 at St. Lawrence University in Canton, NY.
 
 I am studying Statistics and Math-Envrionmental Science hoping to dive into sustainable agriculture or renewable energy!
